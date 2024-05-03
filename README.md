@@ -1,1 +1,1 @@
-# IP-gimnaziul-S-ra-ica-Nou-
+# IP-gimnaziul-Sărățica-Nouă
